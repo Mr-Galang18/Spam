@@ -1,0 +1,2 @@
+# Spam
+Jangan Disalah gunakan
